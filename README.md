@@ -1,2 +1,2 @@
 # NightClub
-# I puchased these songs for my personal use
+# I purchased these songs for my personal use
